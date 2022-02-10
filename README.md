@@ -1,1 +1,2 @@
-Ohh,🧐 you do check it.
+Thats all from 19IT058.
+Thank you.
